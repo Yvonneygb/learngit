@@ -6,3 +6,5 @@
  efrvgtbgbgvfvfvfgfvfvfvfdgffgvfgffgfgffgf
  资本主义哇百岁
  东侧的思想谬好的也不需要特发尽快了解
+ 
+ new

@@ -4,3 +4,4 @@
  胡锦涛
  习近平
  efrvgtbgbgvfvfvfgfvfvfvfdgffgvfgffgfgffgf
+ 资本主义哇百岁
